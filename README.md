@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# China S Magat's UX Journal
